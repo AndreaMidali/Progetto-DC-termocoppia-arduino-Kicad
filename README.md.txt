@@ -1,0 +1,1 @@
+informazioni in merito alla lezione del 28 e 29 gennaio 2019
